@@ -7,7 +7,7 @@
 - 2 shot Espresso Roast
 - 1 1/2 cups ice
 - 3/4 cup whole milk
-- 2 Tbsp dark chocolate sauce/syrup
+- 3 Tbsp dark chocolate sauce/syrup
 - Whipped cream
 - Chocolate shavings
 
